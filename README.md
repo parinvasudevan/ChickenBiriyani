@@ -1,0 +1,1 @@
+Biryani is a layered rice preparation, traditionally made with cooked meat and rice. The meat is flavoured with warm spices (garam masala) and a gravy with tomato or onion. The meat and rice are added in alternate layers and the whole pot is cooked with a sealed lid on top of it (dum).
